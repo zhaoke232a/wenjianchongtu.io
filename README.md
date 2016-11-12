@@ -1,2 +1,2 @@
 # wenjianchongtu.io
-*ssssssss
+* ssssss2
